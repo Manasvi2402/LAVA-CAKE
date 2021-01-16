@@ -1,0 +1,6 @@
+PREPARATION:
+Molten chocolate cakes characteristically contain five ingredients: butter, eggs, sugar, chocolate, and flour.[2] The butter and chocolate are melted together, while the eggs are either whisked with the sugar to form a thick paste, producing a denser pastry, or separated, with the white whipped into a meringue to provide more lift and a lighter result. A tablespoon of strong coffee is sometimes added to enhance the chocolate flavor. Vanilla extract, salt and cinnamon are additionally recommended in some cases to add extra flavor.[5]
+
+The cakes are typically baked in individual portions in ramekins, or brioche molds. However, there are a number of creative variations in chocolate lava cakes or molten chocolate cakes such as preparing the cakes in a coffee or tea mug. The cake can also be prepared in a microwave oven instead of an oven in certain cases.[6]
+
+A scoop of ice cream, fresh fruit, a drizzling of fruit and/or chocolate sauce, and dustings of powdered sugar are typical enhancements. A sprig of mint is sometimes used as a garnish.

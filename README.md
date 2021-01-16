@@ -1,0 +1,5 @@
+LAVA CAKE:
+Molten chocolate cake is a popular dessert that combines the elements of a chocolate cake and a soufflé. Its name derives from the dessert's liquid chocolate center, and it is also known as chocolate moelleux, chocolate lava cake, or simply lava cake.
+
+HISTORY: 
+The United States-based chef Jean-Georges Vongerichten claims to have invented molten chocolate cake in New York City in 1987, but the French chef and chocolatier Jacques Torres disputes this, arguing that such a dish already existed in France. According to Vongerichten, he pulled a chocolate sponge cake from the oven before it was done and found that the center was still runny, but was warm and had both a good taste and texture. Regardless of who invented the dish, Vongerichten has been credited with popularizing it in the United States, and it became almost a de rigueur inclusion on high-end restaurant dessert menus
